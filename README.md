@@ -96,7 +96,7 @@
 <table>
   <tr>
     <td align="center">
-      ${\color{#68b7f1}\text{CURRENT FIXATIONS : Strength smp, Unstable Universe , Lifesteal smp , pjsk , FUNHOUSE , CRK. }}$
+      ${\color{#68b7f1}\text{CURRENT FIXATIONS : Strength smp, Unstable Universe , Lifesteal smp , pjsk , FUNHOUSE , AvA/M. }}$
       <br>
     </td>
   </tr>
