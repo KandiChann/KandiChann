@@ -14,7 +14,7 @@
 
 <img src="https://64.media.tumblr.com/326d1abec15b047bc7772990c44f601b/f50ee8fcee2908cd-35/s640x960/06a55c926c3e49fe26c7828487c472db5292db92.jpg" alt="Alt Text" width="200" />
 
-‎ ${\textsf{\color{#fff8f4} Kandi }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#dab872} Any character i am }}$  ${\textsf{\color{#dab872} .}}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎   ‎ ‎   ‎ ‎   ‎ ‎   ‎ ‎    ‎  ‎ ‎   ‎ ‎   ‎ ‎  ‎ ${\textsf{\color{#dab872} WELOVEARGS }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#fff8f4} ISFP }}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎  ‎ ‎   ‎ ‎  ‎ ‎   ‎ ‎  ‎  ‎ ‎  ‎ ${\textsf{\color{#3e393c} I only block if needed }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#fff8f4} Basic dni }}$ ‎‎
+‎ ${\textsf{\color{#fff8f4} Kandi }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#dab872} Any character i am }}$  ${\textsf{\color{#dab872} .}}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎   ‎ ‎   ‎ ‎   ‎ ‎   ‎ ‎    ‎  ‎ ‎   ‎ ‎   ‎ ‎  ‎ ${\textsf{\color{#dab872} WELOVEARGS }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#fff8f4} ISFP }}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ${\textsf{\color{#3e393c} I only block if needed }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#fff8f4} Basic dni }}$ ‎‎
 ‎‎
 
 
