@@ -1,10 +1,5 @@
 <div align="center">
 
-
- <p align="center">
-  <img src="https://64.media.tumblr.com/c527a252d7680a881f9b42b2746e6f5b/81c74aa4775fd85c-ef/s1280x1920/495f4a9856813ad20ef60c702243ff890a63cf36.pnj" alt="Alt Text" width="500" />
-</p>
-
 <p align="center">
   <img src="https://64.media.tumblr.com/9965b02ef6e37e1dee0165e306ade2f2/2870f6b73e0540f3-9d/s2048x3072/9003500973e4f2a64f7c49963ae6ff9ce922535a.pnj" alt="Alt Text" width="500" />
 </p>
