@@ -42,8 +42,6 @@
   <br>
  </details>
 
-  <img src="https://64.media.tumblr.com/ceaeaa4c1bf65221564909923627f142/c9731e29e4c9164b-db/s100x200/871752526e18effebd9eefc294551c98e3e42c0e.pnj" alt="Alt Text" width="100" /> <img src="https://64.media.tumblr.com/b1385f98ea2a5de271f60666e47ea06e/c9731e29e4c9164b-e9/s100x200/df4182674d2e3b36d90f9e8112719de572a71472.pnj" alt="Alt Text" width="100" /> 
-
  <p align="center">
   <img src="https://64.media.tumblr.com/9965b02ef6e37e1dee0165e306ade2f2/2870f6b73e0540f3-9d/s2048x3072/9003500973e4f2a64f7c49963ae6ff9ce922535a.pnj" alt="Alt Text" width="700" />
 </p>
