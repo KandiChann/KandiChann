@@ -34,7 +34,15 @@
   <img src="https://64.media.tumblr.com/77eeae32e2912575e0694f283eb66b45/f50ee8fcee2908cd-d0/s100x200/2cd5aad3c7b0b8a0a9da527b68f19cd9d6e0ca3f.gifv" alt="Alt Text" width="100" /> <img src="https://64.media.tumblr.com/486869ee1fc39653da23fbb85919eabf/f50ee8fcee2908cd-82/s100x200/cac6dacd368ea56c48ef01b2c569adf17bbe7f70.gifv" alt="Alt Text" width="100" /> <img src="https://64.media.tumblr.com/3d7cc15b68b9be8a0d58122c88803aee/f50ee8fcee2908cd-58/s100x200/020e9b9c39d61c32503564066f043dd2502aabb4.gifv" alt="Alt Text" width="100" /> <img src="https://64.media.tumblr.com/8c5b709ccbf0811dcd18034db1134927/f50ee8fcee2908cd-ed/s100x200/f6968b9010a784a3ffea2ce0ab1b3748822c243d.gifv" alt="Alt Text" width="100" />
  </details>
 
+ <details>
+  <summary> ${\textsf{\color{#3e393c}     𖹭𖹭 }}$ ${\textsf{\color{#dab872}  BYI/BEFORE YOU INTERACT }}$ </summary><br>
+  im not 1 to int first so if u wanna talk/int with me please just say a hello and ill prolly keep the conversation running.
+  i only interact 1st if ur a close friend of mine. im not a really good comforter but i will listen to u and give some advice,
+  i am awkward in most conversations! im sometimes offtab so i might not pay close attention!
+  <br>
+ </details>
 
+  <img src="https://64.media.tumblr.com/ceaeaa4c1bf65221564909923627f142/c9731e29e4c9164b-db/s100x200/871752526e18effebd9eefc294551c98e3e42c0e.pnj" alt="Alt Text" width="100" /> <img src="https://64.media.tumblr.com/b1385f98ea2a5de271f60666e47ea06e/c9731e29e4c9164b-e9/s100x200/df4182674d2e3b36d90f9e8112719de572a71472.pnj" alt="Alt Text" width="100" /> 
 
  <p align="center">
   <img src="https://64.media.tumblr.com/9965b02ef6e37e1dee0165e306ade2f2/2870f6b73e0540f3-9d/s2048x3072/9003500973e4f2a64f7c49963ae6ff9ce922535a.pnj" alt="Alt Text" width="700" />
