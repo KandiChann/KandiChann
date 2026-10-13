@@ -38,6 +38,6 @@
   <br>
  </details>
 
-
+ ${\textsf{\color{#fff8f4} none of these drawings are mine }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#83C1FF} credits to original! }}$  ${\textsf{\color{#83C1FF} .}}$ ‎ ‎ ‎ ‎ ‎ ‎
 
  </details>
