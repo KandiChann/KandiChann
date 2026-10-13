@@ -33,7 +33,7 @@
 
    <details>
   <summary> ${\textsf{\color{#83C1FF}     ⁝⁝⁝ }}$ ${\textsf{\color{#B6efff}  secret tdl stamps }}$ </summary><br>
-      these dont match my profile and im here for it [color i mean]
+      these dont match my profile and im here for it.
   <img src="https://64.media.tumblr.com/0e727bab4c23290581edafba273db7ee/caa1900129db065a-bd/s250x400/50b73e100cf32c4460e9de0adae8be9ade4506bd.gifv" alt="alt text" width="100" /> <img src="https://64.media.tumblr.com/6f31d1947a3e1d933b9e715bae99eccd/caa1900129db065a-79/s250x400/ed959586384da66b388e2d709117c4160824f310.gifv" alt="Alt Text" width="100" /> <img src="https://64.media.tumblr.com/193a69eca33f7d76c1e9fdcfc8d72f3b/caa1900129db065a-8c/s250x400/5c9452d83b4e44a514abdf5381907dcdd5227b76.gifv" alt="Alt Text" width="100" /> <img src="https://64.media.tumblr.com/6f3d5dd0e9a32f1121305eb8f5b31329/caa1900129db065a-0e/s250x400/98e79a87546ef200da948217615cb84035de9971.gifv" alt="Alt Text" width="100" />
   <br>
  </details>
