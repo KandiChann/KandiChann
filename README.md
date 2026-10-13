@@ -5,14 +5,14 @@
 <img src=https://64.media.tumblr.com/4d5aa7e7dff99095639a307b7cc90dc0/61e6a6c92fe80d6d-08/s1280x1920/5c6be92854365bbf86455c501be06d8355490635.pnj width="500" align="left"> 
 
 
-   ${\color{#fff8f4}\text{ SO4 }}$ ${\color{#83C1FF}\text{ graphic }}$  ${\color{#83C1FF}\text{ by }}$  ${\textsf{\color{#B6efff} @m4ceattack on tumblr}}$ 
+   ${\color{#fff8f4}\text{ Sp4 }}$ ${\color{#83C1FF}\text{ graphic }}$  ${\color{#83C1FF}\text{ by }}$  ${\textsf{\color{#B6efff} @m4ceattack on tumblr}}$ 
 
 
 
 
   <img src="https://64.media.tumblr.com/ceaeaa4c1bf65221564909923627f142/c9731e29e4c9164b-db/s100x200/871752526e18effebd9eefc294551c98e3e42c0e.pnj" alt="Alt Text" width="100" /> <img src="https://64.media.tumblr.com/b1385f98ea2a5de271f60666e47ea06e/c9731e29e4c9164b-e9/s100x200/df4182674d2e3b36d90f9e8112719de572a71472.pnj" alt="Alt Text" width="100" /> 
 
-‎ ${\textsf{\color{#fff8f4} Kandi }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#83C1FF} Sage }}$  ${\textsf{\color{#83C1FF} .}}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎   ‎ ‎   ‎ ‎   ‎ ‎   ‎ ‎    ‎  ‎ ‎   ‎ ‎   ‎ ‎  ‎ ${\textsf{\color{#B6efff} and the cos name im in, im not picky! }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#fff8f4} ISFP , So4 }}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ${\textsf{\color{#83C1FF} I block with given reason }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#fff8f4} Basic dni }}$ ‎‎
+‎ ${\textsf{\color{#fff8f4} Kandi }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#83C1FF} Sage }}$  ${\textsf{\color{#83C1FF} .}}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎   ‎ ‎   ‎ ‎   ‎ ‎   ‎ ‎    ‎  ‎ ‎   ‎ ‎   ‎ ‎  ‎ ${\textsf{\color{#B6efff} and the cos name im in, im not picky! }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#fff8f4} ISFP , Sp4 }}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ${\textsf{\color{#83C1FF} I block with given reason }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#fff8f4} Basic dni }}$ ‎‎
 ‎‎
 
 
