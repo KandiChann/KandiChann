@@ -12,7 +12,7 @@
 
   <img src="https://64.media.tumblr.com/ceaeaa4c1bf65221564909923627f142/c9731e29e4c9164b-db/s100x200/871752526e18effebd9eefc294551c98e3e42c0e.pnj" alt="Alt Text" width="100" /> <img src="https://64.media.tumblr.com/b1385f98ea2a5de271f60666e47ea06e/c9731e29e4c9164b-e9/s100x200/df4182674d2e3b36d90f9e8112719de572a71472.pnj" alt="Alt Text" width="100" /> 
 
-‎ ${\textsf{\color{#fff8f4} Kandi }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#83C1FF} Sage }}$  ${\textsf{\color{#83C1FF} .}}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎   ‎ ‎   ‎ ‎   ‎ ‎   ‎ ‎    ‎  ‎ ‎   ‎ ‎   ‎ ‎  ‎ ${\textsf{\color{#B6efff} and the cos name im in, im not picky! }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#fff8f4} ISFP , Sp4 }}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ${\textsf{\color{#83C1FF} I block with given reason }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#fff8f4} Basic dni }}$ ‎‎
+‎ ${\textsf{\color{#fff8f4} Kandi }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#83C1FF} Sage }}$  ${\textsf{\color{#83C1FF} .}}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ${\textsf{\color{#B6efff} and the cos name im in, im not picky! }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#fff8f4} ISFP , Sp4 }}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎ ${\textsf{\color{#83C1FF} I block with given reason }}$ ${\textsf{\color{#3e393c} / }}$ ${\textsf{\color{#fff8f4} Basic dni }}$ ‎‎
 ‎‎
 
 
