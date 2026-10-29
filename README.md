@@ -2,8 +2,6 @@
 
 <div align="center">
 
-<img src=https://64.media.tumblr.com/f474dbc6f9aeb47551ea2ac25bba718f/afdd8dbf16650ed8-45/s400x600/07dc9f598f9090ae4cc14f3b1c5ed7273bfac06d.pnj width="390" align="center"> 
-
    
    ${\color{#fff8f4}\text{ Lilia Vanrouge }}$ ${\color{#235267}\text{ graphic }}$  ${\color{#1f2b46}\text{ by }}$  ${\textsf{\color{#F6CEF6} @abudasima on tumblr}}$ 
 
