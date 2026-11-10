@@ -6,15 +6,15 @@
    ${\color{#fff8f4}\text{ Lilia Vanrouge }}$ ${\color{#235267}\text{ graphic }}$  ${\color{#1f2b46}\text{ by }}$  ${\textsf{\color{#F6CEF6} @abudasima on tumblr}}$ 
 
 
-<img src="https://komarev.com/ghpvc/?username=KandiChann&color=235267&style=plastic&label=Twisted+Wonderland" alt="profile view counter" align="center">
+<img src="https://komarev.com/ghpvc/?username=KandiChann&color=235267&style=plastic&label=Deer+noises" alt="profile view counter" align="center">
 
 
-<img src=https://64.media.tumblr.com/8ed0974e46a9bdb9d998da260c4258e9/f3e1941250f62fac-4d/s2048x3072/e8e813f43397a9d559561fadc47bd798c9fb1e8c.pnj width="190" align="center"> 
+<img src=https://64.media.tumblr.com/1a300d89a6c73d4a369670dce0f4d752/de963c61f4ae6a15-01/s400x600/2e25d9f66878b040794251ade11ea2ba490b49a9.pnj width="190" align="center"> 
 
   <table>
     <tr>
       <td>
-     Kandi or Azul　 　 　 　He Him
+      Azul　  　 　He Him
     　　  isfp sp6　　 <br>
       </td>
     </tr>
