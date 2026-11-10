@@ -3,10 +3,10 @@
 <div align="center">
 
    
-   ${\color{#fff8f4}\text{ Lilia Vanrouge }}$ ${\color{#235267}\text{ graphic }}$  ${\color{#1f2b46}\text{ by }}$  ${\textsf{\color{#F6CEF6} @abudasima on tumblr}}$ 
+   ${\color{#fff8f4}\text{ Noelle }}$ ${\color{#235267}\text{ the }}$  ${\color{#1f2b46}\text{ Reindeer }}$  ${\textsf{\color{#F6CEF6} is amazing! }}$ 
 
 
-<img src="https://komarev.com/ghpvc/?username=KandiChann&color=235267&style=plastic&label=Deer+noises" alt="profile view counter" align="center">
+<img src="https://komarev.com/ghpvc/?username=KandiChann&color=235267&style=plastic&label=Reindeer+noises" alt="profile view counter" align="center">
 
 
 <img src=https://64.media.tumblr.com/1a300d89a6c73d4a369670dce0f4d752/de963c61f4ae6a15-01/s400x600/2e25d9f66878b040794251ade11ea2ba490b49a9.pnj width="190" align="center"> 
